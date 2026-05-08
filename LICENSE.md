@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Centeriofortress.github.io/attack-on-titan-re-uz68/ ) |
  |---------------------|----------------------:|
 
 
